@@ -1,2 +1,5 @@
-# Read-equals-wealth
-Health, Wealth, and My Love. Nothing else matters.
+# Daily Schedule
+* Half-hour English
+* One-hour exercise
+* One-hour reading
+* Others for course assignments, sports, and fun
