@@ -34,7 +34,7 @@ proper perspective.
 <p align="right">Your loving daughter,</p>
 <p align="right">Sharon</p>
 
-# RECIPROCATION
+# Reciprocation Principle
 The Old Give and Take... and Take. 
 * Give first, but just don't count. They will pay you back in the future.
 * When bargain with someone, give a high price first and then make a consession. It'll give others a responsibility to make a deal. It's not that direct, but powerful.
