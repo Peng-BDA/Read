@@ -39,5 +39,12 @@ The Old Give and Take... and Take.
 * Give first, but just don't count. They will pay you back in the future.
 * When bargain with someone, give a high price first and then make a consession. It'll give others a responsibility to make a deal. It's not that direct, but powerful.
 * Exploitation attempts should be exploited.
-  
+
+# Consistency Principle
+* What people are doing is consistent with what they were doing in the past. 
+* If I'd like to ask someone for big things, I shoule ask small things first. Like "lowball".
+* Outside elements will affect people's doing. But after removing the ourside factors, the inner support might have grown. Compared with outside elements, the inner support is stronger and last for longer time.
+* Ask myself a question: If I go back time, will I make the same choice.
+
+Quite wrong. You see, I recogize what has gone here. I know that your story about doing a survey was just a pretext for getting people to tell you how often they go out and that, under those circumstances, there a nature tendency to exaggerate. I also realize that your bosses selected you for this job because of your physical attractiveness and told you to wear clothes showing a lot of resilient body tissue because a pretty, scantily clad woman is likely to get men to brag about what swingers they are in order to impress her. So I'm not interested in your entertainment club because what Emerson said about foolish consistency and hobgobins of the mid. 
 
