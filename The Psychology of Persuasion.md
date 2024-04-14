@@ -48,3 +48,35 @@ The Old Give and Take... and Take.
 
 Quite wrong. You see, I recogize what has gone here. I know that your story about doing a survey was just a pretext for getting people to tell you how often they go out and that, under those circumstances, there a nature tendency to exaggerate. I also realize that your bosses selected you for this job because of your physical attractiveness and told you to wear clothes showing a lot of resilient body tissue because a pretty, scantily clad woman is likely to get men to brag about what swingers they are in order to impress her. So I'm not interested in your entertainment club because what Emerson said about foolish consistency and hobgobins of the mid. 
 
+# Social proof
+* Where all think alike, no one thinks very much  -WALTER LIPPMANN
+* 5% are initiators, 95% are followers. 
+* When common people are uncertain about whether they should do or not, they will follow others, especially someone simliar to them.
+* When asking for help in a foreign environment, being specific is important to reduce uncertainty of onlookers.
+
+MONKEY ME, MONKEY DO.
+
+## How to do
+We need only make a conscious decision to be alert to counterfeit social evidence, and the smug overconfidence of the exploiters will play directly into our hands. 
+Exploiters should be exploited. 
+
+# Liking - The Friendly Thief
+Factors affecting liking:
+* Physical Attractiveness
+Certain of the consequences of uncertain assumptions that "good looking equals good". Even I don't know this factor is working. Be careful of good-looking people.
+
+* Similarity
+* Compliments
+* Contact and Cooperation
+It only works under harmonious and noncompetitive environment.
+* Conditioning and Association
+I links my loss to her. That's the main reason I don't like her.
+
+## How to do 
+Only focus on the final results. If I don't like her/him, will I still make the same deal. 
+
+
+
+
+
+
