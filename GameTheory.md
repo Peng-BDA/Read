@@ -43,4 +43,71 @@ We say that o is strictly Pareto superior to $o^{'}$ if every player prefers o t
 **Theorem - Vickrey, 1961**
 In a second-price auction, if Player i is selfish and greedy then it is a weakly dominant strategy for Player i to bid her true value, that is, to choose $b_i=v_i$.
 
+## The pivotal mechanism
+
+The pivotal mechanism, or Clarke mechanism, is a game designed to give the participants an incentive to report their true willingness to pay.\
+\
+An individual is pivotal if remove it's $w_i$ and $c_i$, the result changes. 
+
+**Pareto efficiency**
+**Theorem - Clarke, 1971**
+In the pivotal mechanism (under the assumed preferences) truthful revelation (that is, stating  $w_i = v_i$) is a weakly dominant strategy for every Player i.
+
+## Iterated deletion procedures
+**What a player do when she does not have a dominant strategy**
+
+### IDSDS (Iterated Deletionof Strictly Dominated Strategy)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
   
