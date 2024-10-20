@@ -23,4 +23,8 @@ Don't take the habit of picking up the phone. \
 should I put more time on study on a few subjects or study more subjects? The first will exhaust me. The second will distract me on too many things. 
 Main focus: Exercise, Voc, Math, (guitar), (Swedish), (Business), (up)
 
+**2024-10-19 Stockholm**\
+They talk and talk and talk-it's not so much the quantity you object to as the repetitousness. They phrase, rephrase, and re-repharese their thoughts-using far more words than necessay, overwhelming you with words, drowning you with them, until your only thought is how to escape, or maybe how to die. \
+Good description to one of my friends.
+
 
