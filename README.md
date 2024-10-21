@@ -29,3 +29,5 @@ Good description to one of my friends.
 Focus: Voc, Math
 Others: Reading, Operation of social media
 
+**2024-10-19 Stockholm**\
+Bear in mind that I can transform any adjective into a noun by adding -ness, though in many cases there may be a more sophicated, or more common, noun form.
