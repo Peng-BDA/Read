@@ -24,10 +24,14 @@ should I put more time on study on a few subjects or study more subjects? The fi
 Main focus: Exercise, Voc, Math, (guitar), (Swedish), (Business), (up)
 
 **2024-10-19 Stockholm**\
+(Exercise, Voc, Math)
 They talk and talk and talk-it's not so much the quantity you object to as the repetitousness. They phrase, rephrase, and re-repharese their thoughts-using far more words than necessay, overwhelming you with words, drowning you with them, until your only thought is how to escape, or maybe how to die. \
 Good description to one of my friends.
 Focus: Voc, Math
 Others: Reading, Operation of social media
 
 **2024-10-19 Stockholm**\
+(Exercise, Voc, Math)
 Bear in mind that I can transform any adjective into a noun by adding -ness, though in many cases there may be a more sophicated, or more common, noun form.
+Try to concentrate on more important things. 
+
